@@ -1,7 +1,9 @@
 
 
 
+liweiming0611@163.com
 
+www.riyimei.com
 
 
 あ　い　う　え　お　　ア　イ　ウ　エ　オ　　a   i   u   e   o

@@ -1,35 +1,32 @@
+ # liweiming0611@163.com
+
+  www.riyimei.com
 
 
+  あ　い　う　え　お　　ア　イ　ウ　エ　オ　　a   i   u   e   o
 
-liweiming0611@163.com
+  か　き　く　け　こ　　カ　キ　ク　ケ　コ       ka ki ku ke ko
 
-www.riyimei.com
+  さ　し　す　せ　そ　　サ　シ　ス　セ　ソ       sa si su se so
 
+  た　ち　つ　て　と　　タ　チ　ツ　テ　ト        ta ti  tu te to
 
-あ　い　う　え　お　　ア　イ　ウ　エ　オ　　a   i   u   e   o
+  な　に　ぬ　ね　の　　ナ　ニ　ヌ　ネ　ノ        na ni nu ne no
 
-か　き　く　け　こ　　カ　キ　ク　ケ　コ       ka ki ku ke ko
+  は　ひ　ふ　へ　ほ　　ハ　ヒ　フ　ヘ　ホ        ha hi hu he ho
 
-さ　し　す　せ　そ　　サ　シ　ス　セ　ソ       sa si su se so
+  ま　み　む　め　も　　マ　ミ　ム　メ　モ        ma mi mu me mo 
 
-た　ち　つ　て　と　　タ　チ　ツ　テ　ト        ta ti  tu te to
+  や　　　ゆ　　　よ　　ヤ　　　ユ　　　ヨ        ya         yu         yo
 
-な　に　ぬ　ね　の　　ナ　ニ　ヌ　ネ　ノ        na ni nu ne no
+  ら　り　る　れ　ろ　　ヤ　リ　ロ　レ　ロ        ra   ri   ru   re   ro
 
-は　ひ　ふ　へ　ほ　　ハ　ヒ　フ　ヘ　ホ        ha hi hu he ho
-
-ま　み　む　め　も　　マ　ミ　ム　メ　モ        ma mi mu me mo 
-
-や　　　ゆ　　　よ　　ヤ　　　ユ　　　ヨ        ya         yu         yo
-
-ら　り　る　れ　ろ　　ヤ　リ　ロ　レ　ロ        ra   ri   ru   re   ro
-
-わ　　　　　　　を　　ワ　　　　　　　ヲ         wa                   o
+  わ　　　　　　　を　　ワ　　　　　　　ヲ         wa                   o
 
 
-ん　　　　　　　　　　ン                                      n
+  ん　　　　　　　　　　ン                                      n
 
 
 
 
-liweiming
+  liweiming
